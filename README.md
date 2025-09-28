@@ -1,0 +1,2 @@
+# wakuwakutrading
+Waku Waku Trader
